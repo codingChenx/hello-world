@@ -1,2 +1,2 @@
 # hello-world
-Less interests,more interest.
+Be kind, be independent, be brave, try to shine like a little star.
